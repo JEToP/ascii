@@ -173,3 +173,4 @@
 
                                                                                                                                    
                                                                                                                                    
+     le profezie dicono che quando finirà Crash&Go avverà la fine del mondo
